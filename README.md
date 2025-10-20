@@ -2,8 +2,6 @@
 
 **Love Next Door** 
 
----
-
 
 
 ---
@@ -16,14 +14,7 @@
 
 ---
 
-##  Why You'll Love It
 
--  **Nostalgic Connections:** Childhood memories resurface in unexpected ways.
--  **Witty Banter:** The chemistry between the leads is electric and hilarious.
--  **Emotional Depth:** Tackles themes of healing, second chances, and personal growth.
--  **Aesthetic Vibes:** Beautiful cinematography and cozy urban settings.
-
----
 
 ##  Main Characters
 
